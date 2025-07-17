@@ -2,11 +2,11 @@
 <div align="center"> # TENNA!!! #
   <br> ㅤ
   <br>ㅤ
-<div align="center"> Hiya! Tenna or Tenn is fine, whatever you prefer! I go by he/they and I don't like plural terms, no thanks!
+<div align="center"> Hiya! Tenna or Tenn is fine, whatever you prefer! I go by he/they and I don't like plural terms, no thanks! I like drawing and sharing my music tastes! 
 <div align="center">  ꒰💿꒱
 <div align="center"> I don't talk very often unless spoken to, but I absolutely ADORE company, never be afraid to sit next to me! I'm fine with anything, C + H is ALWAYS encouraged around me unless said otherwise!
  <div align="center"> ꒰💿꒱
-<div align="center"> *I don't mind ship cuddles*, just try to be civil! I'm a little prone to being made uncomfy when it comes to some things, but i'll always be upfront and tell you if you're doing something wrong.
+<div align="center"> *I don't mind ship cuddles*, just try to be civil! I'm a little prone to being made uncomfy when it comes to some things, but i'll always be upfront and tell you if you're doing something wrong. I'm also not a fan of doubles, yes I know, the osdd fictive of one of the most POPULAR characters at the moment doesn't like doubles, comical! I won't be hostile of course! Just a hit hesitant!
 <div align="center"> ꒰💿꒱
   
   SOMETIMES.. I yap ALOT, sorry! I enjoy going on about certain topics I love! ESPECIALLY WITH MY BUDDIES!
