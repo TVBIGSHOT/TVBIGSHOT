@@ -4,7 +4,7 @@
   <br>ㅤ
 <div align="center"> Hiya! Tenna or Tenn is fine, whatever you prefer!
 <div align="center">  ꒰💿꒱
-<div align="center"> I don't talk very often unless talked to, but I absolutely ADORE company, never be afraid to sit next to me! I'm fine with anything, C + H is ALWAYS encouraged around me unless said otherwise!
+<div align="center"> I don't talk very often unless spoken to, but I absolutely ADORE company, never be afraid to sit next to me! I'm fine with anything, C + H is ALWAYS encouraged around me unless said otherwise!
  <div align="center"> ꒰💿꒱
 <div align="center"> *I don't mind ship cuddles*, just try to be civil! I'm a little prone to being made uncomfy when it comes to some things, but i'll always be upfront and tell you if you're doing something wrong.
 <div align="center"> ꒰💿꒱
