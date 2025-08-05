@@ -2,7 +2,7 @@
 <div align="center"> # TENNA!!! #
   <br> ㅤ
   <br>ㅤ
-<div align="center"> Hiya! Tenna or Tenn, or Sora is fine, whatever you like! I go by he/they and I prefer non plural terms, thanks! I like drawing and sharing my music tastes! 
+<div align="center"> Hiya! Tenna or Tenn is fine, whatever you like! I go by he/they and I prefer non plural terms, thanks! I like drawing and sharing my music tastes! 
 <div align="center">  ꒰💿꒱
 <div align="center"> I don't talk very often unless spoken to, but I absolutely ADORE company, never be afraid to sit next to me! I'm fine with anything, C + H is ALWAYS encouraged around me unless said otherwise!
  <div align="center"> ꒰💿꒱
