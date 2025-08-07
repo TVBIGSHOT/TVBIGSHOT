@@ -1,18 +1,23 @@
-![tumblr_8856ff2aae164b057c4b2089d59d428f_0e7fb04f_2048-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/29a4ac5c-03af-491b-8f25-66602f11c219)
-<div align="center"> # TENNA!!! #
+![tumblr_d441fbfda126f0cb11b99dc7a186ca00_47a16b47_2048](https://github.com/user-attachments/assets/a0c6f40c-559b-49dc-a797-480a8ac10f9f)
+<img width="2048" height="164" alt="tumblr_ea4c67eb5d972416325c419e742c0a04_6f9f546f_2048" src="https://github.com/user-attachments/assets/04d37327-e5dc-4523-b8cc-e2d66952a1a0" />
+
+<div align="center"> # ㅤTENNA ㅤ/ㅤ ANTㅤ #
   <br> ㅤ
   <br>ㅤ
-<div align="center"> Hiya! Tenna or Tenn is fine, whatever you like! I go by he/they and I prefer non plural terms, thanks! I like drawing and sharing my music tastes! 
-<div align="center">  ꒰💿꒱
-<div align="center"> I don't talk very often unless spoken to, but I absolutely ADORE company, never be afraid to sit next to me! I'm fine with anything, C + H is ALWAYS encouraged around me unless said otherwise!
- <div align="center"> ꒰💿꒱
-<div align="center"> *I don't mind ship cuddles*, just try to be civil! I'm a little prone to being made uncomfy when it comes to some things, but i'll always be upfront and tell you if you're doing something wrong. I'm also not a fan of doubles, yes I know, the osdd fictive of one of the most POPULAR characters at the moment doesn't like doubles, comical! I won't be hostile of course! Just a hit hesitant!
-<div align="center"> ꒰💿꒱
-  
-  SOMETIMES.. I yap ALOT, sorry! I enjoy going on about certain topics I love! ESPECIALLY WITH MY BUDDIES!
-  <div align="center"> THAT'S IT! THANK YOU FOR READING!!!
-  <br>  ㅤ
+<div align="center"> HEㅤ/ㅤTHEYㅤㅤTRANSMASCㅤ,ㅤAROFLUXㅤOMNISEXUAL!
+<div align="center">  BPDㅤ+ㅤAUDHD
+<div align="center"> INT AND C + H IS ALWAYS ENCOURAGED UNLESS SAID OTHERWISE !ㅤI'M A BIT QUIET BUT I LOVE COMPANYㅤ!
+  <div align="center"> (ㅤthis excludes if my status says intwc or similar,ㅤjust be cautious please.ㅤ)
+ <div align="center"> ㅤ 
+<div align="center"> ㅤ 
+ <div align="center"> ㅤ 
+<div align="center"> DNIㅤ -ㅤ BASIC DNI!!! +ㅤ endosㅤ ,ㅤ -14ㅤ  /ㅤ  +21ㅤ ,ㅤ Harm talkㅤ ,ㅤ overly sexual talk ,ㅤ RP !! 
+<div align="center"> BYIㅤ -ㅤ I talk in all caps, and might be a bit annoying, sorryㅤ !
+ <div align="center"> ㅤ 
+    <div align="center"> ㅤ 
+ <div align="center"> ㅤ ROBLOXㅤ :ㅤ mrdoomsie
+ <div align="center"> ㅤ DISCORDㅤ :ㅤ bigshotcrt
 
-![tumblr_289292c917dd20f644182154906113c1_9717c5a5_100-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/6db5451d-8a1c-499b-aeb5-a8bb3ce6e033) ![tumblr_70755b3103029a768227e793a85d398e_5058a5c6_250-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/c6f65d10-6af5-41c6-a5dc-f86f2f23fb3d)
-![tumblr_24664e4b640fff5a34df33dc583c1986_90072cd2_100-ezgif com-webp-to-gif-converter](https://github.com/user-attachments/assets/55fac02a-08f1-4af0-8c9b-6e2f4739e369)
+<img width="2048" height="164" alt="tumblr_ea4c67eb5d972416325c419e742c0a04_6f9f546f_2048" src="https://github.com/user-attachments/assets/04d37327-e5dc-4523-b8cc-e2d66952a1a0" />
+ㅤ
 
